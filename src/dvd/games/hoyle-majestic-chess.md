@@ -1,0 +1,25 @@
+# Hoyle Majestic Chess
+
+**CD Keys:** 5
+
+## Keys
+
+```
+RUD2TUB6TYZ8LEG43932
+```
+
+```
+WAS9TUP2FYP4CYW47528
+```
+
+```
+WEW6SYP8REW3BUG54774
+```
+
+```
+DAL5CYN4ZYM9JEL29455
+```
+
+```
+TYS2XAZ7MUW8BUW43222
+```

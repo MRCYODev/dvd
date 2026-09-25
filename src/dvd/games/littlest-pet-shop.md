@@ -1,0 +1,25 @@
+# Littlest Pet Shop
+
+**CD Keys:** 5
+
+## Keys
+
+```
+7DZH-33B5-GXAL-9347-R4BB
+```
+
+```
+ZFZR-LX8W-C7E4-FLYT-UFZW
+```
+
+```
+F4PX-5VVK-VLWX-TAHQ-3GEL
+```
+
+```
+C8HH-JWQQ-27T4-NA8A-6V4U
+```
+
+```
+CV7F-VZRU-44C8-KCAY-WGAU
+```

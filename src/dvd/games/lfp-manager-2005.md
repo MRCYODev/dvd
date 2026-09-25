@@ -1,0 +1,25 @@
+# LFP Manager 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+CLJ2-65FT-BQYE-M4Q8-26KL
+```
+
+```
+AQK3-3PCF-BCWQ-MB2T-784Z
+```
+
+```
+93AA-TA8B-PRGZ-6ZU7-26G6
+```
+
+```
+PZ5D-ACN6-K394-7VA5-RZGX
+```
+
+```
+AFX7-YPLS-5N8H-D8RP-VXAZ
+```

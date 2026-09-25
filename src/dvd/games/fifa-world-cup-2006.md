@@ -1,0 +1,25 @@
+# FIFA World Cup 2006
+
+**CD Keys:** 5
+
+## Keys
+
+```
+MVV5-6NGQ-V9NH-EGFA-XYEZ
+```
+
+```
+XW88-ASFD-GD97-PBSC-88VJ
+```
+
+```
+ZQ55-PHLP-NJ8Q-6YE2-T24D
+```
+
+```
+H55D-NGAS-HNBH-XY3S-7R66
+```
+
+```
+35KT-Z4HN-5XX5-ZMGE-LLFT
+```

@@ -1,0 +1,25 @@
+# Far Cry
+
+**CD Keys:** 5
+
+## Keys
+
+```
+FCY-WFN9-LFLQ-EG8W-LCFJ
+```
+
+```
+FCY-13WN-QR6A-CVH6-ET76
+```
+
+```
+FCY-7LDD-GVNG-2YGP-FVNB
+```
+
+```
+LO32-HACB-YZ21-XTLF-B9C3
+```
+
+```
+9DCC-F4R3-RAAD-234E-55TI
+```

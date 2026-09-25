@@ -1,0 +1,25 @@
+# Galactic Civilizations
+
+**CD Keys:** 5
+
+## Keys
+
+```
+DN-594680-GC1-9493F34F25
+```
+
+```
+DN-461586-GC1-373C1A94E6
+```
+
+```
+DN-452966-GC1-93CC8CBB06
+```
+
+```
+DN-658465-GC1-CE38B1CC5E
+```
+
+```
+DN-155418-GC1-7C53C8930F
+```

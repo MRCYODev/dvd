@@ -1,0 +1,25 @@
+# Madden NFL 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+4LLL-XJ4H-PQV2-82AB-BF8Z
+```
+
+```
+MRKK-A5HD-8GWR-Q4PL-EYUT
+```
+
+```
+P6VV-BGDQ-UASC-8YPB-PHMV
+```
+
+```
+UP44-FXDM-TUBS-Y7WJ-T3P7
+```
+
+```
+ZRE6-4G64-C63W-GBUH-CR35
+```

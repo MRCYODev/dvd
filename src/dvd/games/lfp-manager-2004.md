@@ -1,0 +1,25 @@
+# LFP Manager 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+AH88-W6PR-GPSV-FZU6-7U3B
+```
+
+```
+EB8Y-444N-LW3M-Y9ZL-TJLB
+```
+
+```
+3YZZ-9KQR-EPEZ-5DFD-MAL9
+```
+
+```
+WGC4-2WG9-N2ME-RSTS-BTK3
+```
+
+```
+SSUL-6UFH-PSEB-RNYG-9NNE
+```

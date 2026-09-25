@@ -1,0 +1,25 @@
+# Halo: Combat Evolved
+
+**CD Keys:** 5
+
+## Keys
+
+```
+K9TGM-K337P-JW24T-B9V73-C3TVW
+```
+
+```
+T39RX-JH7Y2-XWTJD-VJX8X-G7MD8
+```
+
+```
+VM324-F4K8W-B9CKB-79KH2-F2CBJ
+```
+
+```
+8D69D-8BFB8-93949-5845F-FH686
+```
+
+```
+G9Qk2-22KV6-TFXCR-V3Y9M-2CCBJ
+```

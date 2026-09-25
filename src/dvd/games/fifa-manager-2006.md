@@ -1,0 +1,25 @@
+# FIFA Manager 2006
+
+**CD Keys:** 5
+
+## Keys
+
+```
+BECU-5XXP-DRYQ-PR9K-JD5N
+```
+
+```
+CPAJ-P9SG-BQ3U-FSJ2-U22S
+```
+
+```
+QVKT-LVRP-MM7G-TB8P-5M7S
+```
+
+```
+SNXX-DT2P-WZ6T-UV7B-BKH8
+```
+
+```
+3MKK-SRX7-LFV2-EPRX-RTR2
+```

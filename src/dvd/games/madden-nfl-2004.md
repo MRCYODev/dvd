@@ -1,0 +1,25 @@
+# Madden NFL 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+PUY8-DB6R-JN4P-HSJK-W594
+```
+
+```
+DVL4-3KLA-AQFJ-V2NZ-SJE3
+```
+
+```
+SH9H-XVYJ-UFND-5E9G-89P6
+```
+
+```
+PDHZ-TNFP-WVGL-QUN5-L64V
+```
+
+```
+ZJMD-K4A5-KUY9-2XUP-2RTM
+```

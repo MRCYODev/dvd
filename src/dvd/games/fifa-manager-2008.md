@@ -1,0 +1,25 @@
+# FIFA Manager 2008
+
+**CD Keys:** 5
+
+## Keys
+
+```
+S8G8-REEW-G14E-EZKG-0HTD
+```
+
+```
+T377-4E2N-3G9F-UTGN-3DC7
+```
+
+```
+YFRH-MWSX-DXTY-HMN7-9QQT
+```
+
+```
+F5X7-7A9P-MLV3-Z22L-QGG9
+```
+
+```
+JQVV-CA5C-5DA6-5FBY-M5Q8
+```

@@ -1,0 +1,25 @@
+# Madden NFL 2006
+
+**CD Keys:** 5
+
+## Keys
+
+```
+7DUL-KRHX-ZMSR-326H-VZ9A
+```
+
+```
+EVCL-8FTU-P9KA-FKPV-AUBU
+```
+
+```
+S94C-FUWJ-9K5E-B8A2-MR3Q
+```
+
+```
+CFJJ-BF43-F6AM-322S-P4ZG
+```
+
+```
+XFMV-HV9M-PVD3-3WZE-PUZ6
+```

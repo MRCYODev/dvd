@@ -1,0 +1,21 @@
+# Guild Wars
+
+**CD Keys:** 4
+
+## Keys
+
+```
+446NL-47MGQ-CL64H-CM6L7-C2MLF
+```
+
+```
+77QHN-D4B3M-G2RBN-3Q97C-8NDBK
+```
+
+```
+11983-BDBL6-C7Q3F-QCF6N-3B32B
+```
+
+```
+33RCK-R74LJ-C4DLQ-N9F4G-C792C
+```
