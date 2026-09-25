@@ -1,0 +1,25 @@
+# Pac-Man World 3
+
+**CD Keys:** 5
+
+## Keys
+
+```
+E27P-896A-7M2C-K7MF-HRLD
+```
+
+```
+SLQQ-MX27-ZQC8-HZQY-DRLD
+```
+
+```
+ARCL-A2YF-8RA5-98RR-9RLD
+```
+
+```
+8XEN-UHEZ-R9RJ-CR9F-PRLD
+```
+
+```
+CST3-PDM7-SKLS-5SK2-XRLD
+```

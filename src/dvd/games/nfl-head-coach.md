@@ -1,0 +1,25 @@
+# NFL Head Coach
+
+**CD Keys:** 5
+
+## Keys
+
+```
+ZAJJ-AC2Q-7D6B-U2VS-8TRC
+```
+
+```
+725M-N3GN-MQC6-53UH-8LCX
+```
+
+```
+82EW-ZWTR-8XH6-RNBH-VCMC
+```
+
+```
+2CTK-JK29-PCWB-YENS-AP8R
+```
+
+```
+ERHR-EG5V-X2PB-S4CC-GATS
+```

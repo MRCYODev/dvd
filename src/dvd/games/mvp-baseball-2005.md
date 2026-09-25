@@ -1,0 +1,25 @@
+# MVP Baseball 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+ER33-NTZL-RCCE-GKN6-URPG
+```
+
+```
+T9K3-XK77-6LS5-GZA7-KH4Q
+```
+
+```
+6SWW-8UF9-99J8-F568-VWC3
+```
+
+```
+EPPF-MUAF-BVRX-KE7V-CWR3
+```
+
+```
+6JL4-B64X-6X5E-XLLH-LANP
+```

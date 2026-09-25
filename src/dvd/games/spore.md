@@ -1,0 +1,25 @@
+# Spore
+
+**CD Keys:** 5
+
+## Keys
+
+```
+R5V5-SMHY-FN7K-V7MR-GJCH
+```
+
+```
+UTZZ-LGTE-U934-UZXR-UCXC
+```
+
+```
+VA5M-H6EP-CHKA-83FQ-4Q6G
+```
+
+```
+7W2A-EARP-2UWT-79S6-S8BB
+```
+
+```
+XJKK-ZFA6-3YXE-5EPD-9HGV
+```

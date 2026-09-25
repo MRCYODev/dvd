@@ -1,0 +1,25 @@
+# Roller Coaster Tycoon 3
+
+**CD Keys:** 5
+
+## Keys
+
+```
+Q497-WQF8-KSNZ-AEA2-BUFM-9PRM
+```
+
+```
+RLD6-6AHJ-AMVV-YTEF-CTAD-ZQQV
+```
+
+```
+XA3D-FWP8-ULLK-S7J2-ETWN-45UL
+```
+
+```
+RLDN-Y6SQ-G5ES-HWR7-CR4B-M8AC
+```
+
+```
+RLDU-M24D-83CX-C8LZ-WDHS-ETND
+```

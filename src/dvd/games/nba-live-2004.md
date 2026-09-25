@@ -1,0 +1,25 @@
+# NBA Live 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+MVNE-PPV4-EHNA-WTFD-LC9K
+```
+
+```
+3DGQ-2DUC-YSFK-KC36-P9JD
+```
+
+```
+5P8Y-Z8J2-XAYC-CFZ9-72WF
+```
+
+```
+YHA2-9VEB-K9AC-D22F-HVKJ
+```
+
+```
+YHE6-BVBK-QNVE-RU45-3N9V
+```

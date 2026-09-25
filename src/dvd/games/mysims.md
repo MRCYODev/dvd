@@ -1,0 +1,25 @@
+# MySims
+
+**CD Keys:** 5
+
+## Keys
+
+```
+YP33-FYSB-9Q7M-MBSA-GELE
+```
+
+```
+K3E6-TFFM-MYPU-SYE8-U4DY
+```
+
+```
+FY7F-6NE4-U2MT-MNC8-CCMC
+```
+
+```
+8HB3-F9QM-WRPY-QABV-UFJW
+```
+
+```
+UNR9-4NT7-6YJC-ESFZ-9A8V
+```

@@ -1,0 +1,25 @@
+# Rugby 2008
+
+**CD Keys:** 5
+
+## Keys
+
+```
+68FF-SVTM-CWAE-UULP-Q7KK
+```
+
+```
+UPQ8-FCPH-LZWB-U57T-ZUMQ
+```
+
+```
+R377-H7C7-3QNN-GTJ8-ZP29
+```
+
+```
+AXJS-WAGD-CSTA-DMYD-74VJ
+```
+
+```
+4UJJ-TGDR-JKH3-8VLB-XBY5
+```

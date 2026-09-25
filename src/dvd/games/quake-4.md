@@ -1,0 +1,25 @@
+# Quake 4
+
+**CD Keys:** 5
+
+## Keys
+
+```
+HMKP-N9M7-KRFR-9TMF-9FJP
+```
+
+```
+MGXJ-TG7C-FTFF-MJK9-T9DH
+```
+
+```
+FWMK-H79P-79WW-G99T-HCWX
+```
+
+```
+HKFR-7MWT-HCJT-PXKW-9KGJ
+```
+
+```
+MNGF-XGRF-GT9C-7G9N-HTXR
+```

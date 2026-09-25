@@ -1,0 +1,25 @@
+# MVP Baseball 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+BM2S-5J8R-5YP9-XZMT-LZHU
+```
+
+```
+TC9R-G4JF-ZHS4-K7ER-B3QS
+```
+
+```
+RHH9-V4RD-QGJT-L34U-37B7
+```
+
+```
+GP99-T9WU-TTMA-JYQK-MGX2
+```
+
+```
+Z5H9-Y5S3-F7PA-KB69-DVES
+```

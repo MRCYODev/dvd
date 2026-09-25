@@ -1,0 +1,25 @@
+# Sid Meier's Pirates!
+
+**CD Keys:** 5
+
+## Keys
+
+```
+RLDE-L4G5-3WCE-PTR4-CGP3-B669
+```
+
+```
+RLDL-DBD6-S786-C2VR-AUDA-MXMA
+```
+
+```
+RLD8-GWAQ-QM28-UXRU-FLKG-7WJB
+```
+
+```
+RLDE-CQ8B-CTVG-78QU-DFR8-9826
+```
+
+```
+RLDG-FJSW-4YVP-RF4D-YYXT-4YTP
+```

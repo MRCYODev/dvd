@@ -1,0 +1,25 @@
+# NBA Live 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+AYJ2-JCQD-W875-3CV7-4GQ7
+```
+
+```
+J7BB-LRTP-GJUV-Q99D-3B85
+```
+
+```
+X3D5-55JU-7B77-SW4Y-FC5U
+```
+
+```
+3RFF-5ZSJ-5ZYT-LNDX-PNP8
+```
+
+```
+8ZBB-TSZE-Q249-N9EV-8EM6
+```

@@ -1,0 +1,25 @@
+# Operation Flashpoint: Resistance
+
+**CD Keys:** 5
+
+## Keys
+
+```
+KMV6-47KHD-031KX-N9EGY-EMFLG
+```
+
+```
+DZF5-J3KC6-BA3X6-1HCTR-PDK27
+```
+
+```
+C6GB-C35F1-3HDKC-WW5J3-2Y0VZ
+```
+
+```
+5P66-4TZX9-3W7G1-91WRW-6Y30X
+```
+
+```
+FSHG-W7L80-1Y2R9-HKRKZ-89XSV
+```

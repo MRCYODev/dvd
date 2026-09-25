@@ -1,0 +1,25 @@
+# Rugby 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+PXMM-YCAW-TGKZ-4F75-HL6V
+```
+
+```
+P74L-JWA3-THBH-JVRE-VF5Z
+```
+
+```
+PWK3-GDA4-TXCB-VB8P-KCQB
+```
+
+```
+PD5V-Z5AW-TRXK-7U2H-DQHR
+```
+
+```
+PU2S-DTA3-TLMH-47CP-5PQH
+```

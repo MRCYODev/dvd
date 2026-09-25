@@ -1,0 +1,25 @@
+# Rugby 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+PUQ8-QCC8-VCAU-MP3M-MZ5F
+```
+
+```
+W54C-SUP3-CZLN-KFKA-HA4J
+```
+
+```
+ZXRZ-3QWK-XZUQ-FAE9-NZTK
+```
+
+```
+8MLU-Q826-PUKA-D2LT-YKA2
+```
+
+```
+G8C4-DSPQ-2CTT-L86C-C46E
+```

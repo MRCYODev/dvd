@@ -1,0 +1,25 @@
+# Rugby 2006
+
+**CD Keys:** 5
+
+## Keys
+
+```
+X5T3-A7SQ-FHTW-83U7-MBQP
+```
+
+```
+KBK3-NTY3-8MGA-P8WX-ZVEX
+```
+
+```
+F4ZZ-QLLY-SP4Z-BDPV-E2Z5
+```
+
+```
+PWSS-XZE9-MBNY-SN4Q-QJ5L
+```
+
+```
+PQXX-9988-VGD6-TUA3-ZQCT
+```

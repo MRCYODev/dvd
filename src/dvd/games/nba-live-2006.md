@@ -1,0 +1,25 @@
+# NBA Live 2006
+
+**CD Keys:** 5
+
+## Keys
+
+```
+WVEN-G26G-QLUY-ACGT-4TJC
+```
+
+```
+FKFP-9TYT-N7C5-PD9C-ADZS
+```
+
+```
+2YQG-867W-D8WS-SZEE-68M5
+```
+
+```
+324C-PPD8-EUJU-98SM-52JT
+```
+
+```
+Z52S-DNVJ-DWQN-7BH2-K4LC
+```
