@@ -1,0 +1,25 @@
+# Armed Assault
+
+**CD Keys:** 5
+
+## Keys
+
+```
+5L5M-D1RW0-X9LEY-B5R0V-DR7LA
+```
+
+```
+80MB-A3LCM-PVGPJ-7HSLA-47LWE
+```
+
+```
+W9SM-G8C3C-S9C5C-E7JJ8-1SLB1
+```
+
+```
+1HHE-7TEPE-X5MJ6-VL8X3-LTW74
+```
+
+```
+7XSP-ESZMY-TXHCC-BFHW1-XVEF
+```

@@ -1,0 +1,25 @@
+# Battlefield 2
+
+**CD Keys:** 5
+
+## Keys
+
+```
+BLGG-CKL5-4Q64-T8EB-IVTL
+```
+
+```
+OCM5-AHY4-LAQR-FAEG-7VTL
+```
+
+```
+V68Q-JL0D-1V9Y-UFA6-SVTL
+```
+
+```
+8PB3-7QV9-KGN6-Z58C-DVTL
+```
+
+```
+T4D5-3N83-OFGU-A8J9-MVTL
+```

@@ -1,0 +1,25 @@
+# Counter Strike: Condition Zero
+
+**CD Keys:** 5
+
+## Keys
+
+```
+5Z62F-CEKQD-4WCZT-TAWQH-JGLFQ
+```
+
+```
+54RT2-843TJ-79UJC-ZGVC5-AR3R2
+```
+
+```
+5ZN2H-NWHEY-RRM7H-PZAXA-GIFQJ
+```
+
+```
+5Z62E-MTXQZ-Z32IY-NW22l-A3C4Q
+```
+
+```
+5RP2E-EPH3K-BR3LG-KMGTE-FN8PY
+```

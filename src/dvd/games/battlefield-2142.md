@@ -1,0 +1,25 @@
+# Battlefield 2142
+
+**CD Keys:** 5
+
+## Keys
+
+```
+UHR9-9N4T-2JLA-R4R3-PK4H
+```
+
+```
+XPL4-BT7B-5TRA-H993-JXU7
+```
+
+```
+J8AS-TGV4-7UHX-UXGT-JN5P
+```
+
+```
+FW7P-MMGE-GNZX-PND7-BT4A
+```
+
+```
+MYFX-YGY7-SBCQ-TV6K-YAA2
+```

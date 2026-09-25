@@ -1,0 +1,25 @@
+# Age of Mythology: The Titans
+
+**CD Keys:** 5
+
+## Keys
+
+```
+B23B7-JTKPR-4TQT3-HXGD6-HXY96
+```
+
+```
+T2HB2-G4PK6-MQPDR-CTYPQ-64JK6
+```
+
+```
+XG9Q9-TJCWG-MKV2Q-TGBFK-KP8K6
+```
+
+```
+BQBBY-4T8MK-8TP28-GRHJ4-2RP7G
+```
+
+```
+JXFTX-YRVX6-YRRYQ-PBTXP-4YKHG
+```

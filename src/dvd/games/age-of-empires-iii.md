@@ -1,0 +1,21 @@
+# Age of Empires III
+
+**CD Keys:** 4
+
+## Keys
+
+```
+DXR32-X44M7-CYTCX-P6H6P-97CPG
+```
+
+```
+GC76J-HKG7J-W9MRG-6WF2P-MHMR8
+```
+
+```
+MDJV4-XHPKD-DY22X-G29H4-8282G
+```
+
+```
+W987Y-6PWK3-CDDTC-R9DPX-4PMTD
+```

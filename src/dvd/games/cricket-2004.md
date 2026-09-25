@@ -1,0 +1,25 @@
+# Cricket 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+MYG8-BJJK-U7W5-2WR7-A8EJ
+```
+
+```
+HV6E-68WX-AWBV-D8DW-YBAV
+```
+
+```
+ZKBT-DAFX-APY3-3JF9-TSDH
+```
+
+```
+YLEW-ATH2-KZBZ-NJNJ-LV82
+```
+
+```
+N966-AFWX-9EV9-ZH77-EQD3
+```

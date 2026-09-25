@@ -1,0 +1,17 @@
+# Dead Mans Hand
+
+**CD Keys:** 3
+
+## Keys
+
+```
+DEVB-Q7S3-Z5T8-ZGE8-AZ84-JT3K
+```
+
+```
+RZR2-K4RL-QPM4-HYZN-98KK-NB3Z
+```
+
+```
+MEMU-WFSX-NQ22-BNXV-77VW-XG86
+```

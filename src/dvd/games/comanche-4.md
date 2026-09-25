@@ -1,0 +1,25 @@
+# Comanche 4
+
+**CD Keys:** 5
+
+## Keys
+
+```
+3YNL-NP5C-6R75-J3NY-TPG6
+```
+
+```
+K4UB-U5TP-FND9-TQ2D-XG27
+```
+
+```
+KGQJ-8M68-7JQW-DUCV-WLC6
+```
+
+```
+3S2D-FLT1-CLS2-RULE-7865
+```
+
+```
+36V8-BLMT-MXWY-EULX-YMSJ
+```

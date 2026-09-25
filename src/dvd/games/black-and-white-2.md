@@ -1,0 +1,25 @@
+# Black & White 2
+
+**CD Keys:** 5
+
+## Keys
+
+```
+HQEW-PYGT-YLV3-Y4PE-7FBE
+```
+
+```
+FDPP-N3XV-A3TV-C9W4-JSMS
+```
+
+```
+U7RZ-4GN6-LB2R-2F74-FT2N
+```
+
+```
+E8W6-KKW8-SF33-USUH-JWSP
+```
+
+```
+YXYY-5ZQH-5J3K-XA39-M4JA
+```

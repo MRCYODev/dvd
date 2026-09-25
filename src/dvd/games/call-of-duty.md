@@ -1,0 +1,25 @@
+# Call of Duty
+
+**CD Keys:** 5
+
+## Keys
+
+```
+HKPH-WT3S-8XHU-2YHW-46C4
+```
+
+```
+Y2SG-8W4P-4YYU-SXY8-5A89
+```
+
+```
+KUP8-GX2H-K8SY-P2KG-90EF
+```
+
+```
+TGYT-UPEK-GKUE-WTTU-F9E3
+```
+
+```
+X42D-8GXD-HXS2-TGX8-1AD0
+```

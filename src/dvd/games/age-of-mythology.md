@@ -1,0 +1,25 @@
+# Age of Mythology
+
+**CD Keys:** 5
+
+## Keys
+
+```
+XDWXF-2JCVG-VTX6T-6KYQ9-QDC4G
+```
+
+```
+RD4D4-B94XK-QVWFP-K9PJD-GVRV3
+```
+
+```
+QVW83-4MC67-FDPTH-49PT8-6HGRD
+```
+
+```
+P3HM4-WDM27-662XW-9BPTV-CFVMQ
+```
+
+```
+HYQRH-FV79R-RHHPW-23G37-BDM76
+```

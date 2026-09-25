@@ -1,0 +1,25 @@
+# Chrome
+
+**CD Keys:** 5
+
+## Keys
+
+```
+7XBYF-E7BW2-FCAP3-YPIFL
+```
+
+```
+6TLMS-5UVWA-F8333-G2PCR
+```
+
+```
+TAPES-7W9GJ-BPE4Z-8IGLW
+```
+
+```
+6JMYB-CTGPT-ESR4X-Z7UMX
+```
+
+```
+2MWZF-C7FWI-6TJK2-PCSLX
+```

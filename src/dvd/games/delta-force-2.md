@@ -1,0 +1,25 @@
+# Delta Force 2
+
+**CD Keys:** 5
+
+## Keys
+
+```
+288T-9AJ2-CVXN-BYSS-NNZW
+```
+
+```
+293C-RQQ7-W2X8-DAQR-YSC4
+```
+
+```
+JTUH-LTHD-BCZV-HFBY-SSNN
+```
+
+```
+24XZ-GHAT-H7W7-C2UP-G559
+```
+
+```
+JSZZ-PPPW-T8BC-TV46-5WSS
+```

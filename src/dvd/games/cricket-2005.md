@@ -1,0 +1,25 @@
+# Cricket 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+JN8Q-8X3W-4KY3-QBFT-S9EQ
+```
+
+```
+XG2S-BG8Q-ZA46-AYWN-A984
+```
+
+```
+L7WE-EJ6Z-V4RF-Z3KD-F6TZ
+```
+
+```
+BZQ8-37CG-SFZB-5ZKD-RSVJ
+```
+
+```
+4GEW-HZDN-5P44-EWFE-DEWA
+```

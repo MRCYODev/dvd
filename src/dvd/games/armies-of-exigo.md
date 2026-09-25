@@ -1,0 +1,25 @@
+# Armies of Exigo
+
+**CD Keys:** 5
+
+## Keys
+
+```
+9244-PAKQ-96NB-GXF6-RRLD
+```
+
+```
+EUHZ-GJ6B-GJD6-VFEE-6RLD
+```
+
+```
+E3YG-P8EH-64S3-AW3E-BRLD
+```
+
+```
+DJT3-VJFG-R34Q-UD24-ARLD
+```
+
+```
+ZRDD-GSSF-HEYR-JV9G-9RLD
+```

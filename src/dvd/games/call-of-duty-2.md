@@ -1,0 +1,25 @@
+# Call of Duty 2
+
+**CD Keys:** 5
+
+## Keys
+
+```
+XWL3-QL3Q-L5XP-357X-78D7
+```
+
+```
+ZHJW-AQZU-HQAZ-UPW7-7717
+```
+
+```
+W73H-PPAG-36UU-5HH3-44B2
+```
+
+```
+UGHP-P76G-7W5U-GQ7E-DA5D
+```
+
+```
+HPJW-HU5L-U3ZW-XU7Q-1C09
+```

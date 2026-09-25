@@ -1,0 +1,25 @@
+# Cricket 2007
+
+**CD Keys:** 5
+
+## Keys
+
+```
+973T-H47V-Z6FN-E7MT-8KC3
+```
+
+```
+TVXX-PSUS-WN3C-NMVD-EC2U
+```
+
+```
+TNZR-RTF5-97PT-N4XT-KNQW
+```
+
+```
+ALJS-JDRU-AECZ-LA42-MBCH
+```
+
+```
+PR55-ECP7-FA2C-RDYK-4XP9
+```
