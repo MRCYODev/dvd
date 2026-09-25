@@ -1,0 +1,25 @@
+# UEFA Euro 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+U899-HZ4V-2S7E-8Y5N-P93Q
+```
+
+```
+VMLC-9GFL-73JE-SK4W-SSL8
+```
+
+```
+NY22-RF29-CH6C-9SZ7-NL6V
+```
+
+```
+YSP7-CGCB-SEF5-U4EF-52RU
+```
+
+```
+CWBB-CV6X-824W-GW3R-R2RA
+```

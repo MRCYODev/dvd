@@ -1,0 +1,25 @@
+# Total Club Manager 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+RZT3-TE4D-S5BP-E93H-8JLT
+```
+
+```
+JXEE-MYMX-95PT-ZN56-BKYR
+```
+
+```
+YMJA-X23J-22TL-KD7N-6HBR
+```
+
+```
+F25V-KFW6-FGWN-FRUW-6L9W
+```
+
+```
+NSZZ-27QG-YFXB-9WDV-85Z5
+```

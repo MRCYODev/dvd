@@ -1,0 +1,25 @@
+# UEFA Champions League 2006-2007
+
+**CD Keys:** 5
+
+## Keys
+
+```
+CRF7-96WQ-9NHA-XMVW-ZLNA
+```
+
+```
+PAKK-SDE7-455D-CCSV-S5KE
+```
+
+```
+RHU4-ATEV-VUH9-T92S-PXTQ
+```
+
+```
+3Z3B-6EHH-372F-NSNR-S9QY
+```
+
+```
+SCBB-BY89-R6KX-LFMM-CHPL
+```

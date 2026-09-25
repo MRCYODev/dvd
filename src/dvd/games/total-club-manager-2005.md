@@ -1,0 +1,25 @@
+# Total Club Manager 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+VLCL-MNGA-T280-QU1X-F7E1
+```
+
+```
+HPX7-C90V-COGK-CX6Z-ME2F
+```
+
+```
+M8ZZ-PNBP-GQND-5LHB-TGUV
+```
+
+```
+MHWW-HBHW-J33Z-LBJQ-QKKR
+```
+
+```
+CYAA-AKK4-HXPI-FXOB-BXG6
+```

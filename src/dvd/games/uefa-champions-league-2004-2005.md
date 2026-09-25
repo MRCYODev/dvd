@@ -1,0 +1,25 @@
+# UEFA Champions League 2004-2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+SD88-46AC-KVNG-PA58-C4EJ
+```
+
+```
+QPCU-74KG-TVNG-DGWR-Q4MY
+```
+
+```
+JL6E-8JI4-UVNG-WUSC-X4QJ
+```
+
+```
+D78G-VGNN-9VNG-3KIA-54CS
+```
+
+```
+RGWE-AKIG-LVNG-6UF1-04AV
+```

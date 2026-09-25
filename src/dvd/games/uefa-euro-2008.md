@@ -1,0 +1,25 @@
+# UEFA Euro 2008
+
+**CD Keys:** 5
+
+## Keys
+
+```
+LPVM-XY5W-NCSE-3CFY-KSGT
+```
+
+```
+VKPX-E89M-XVKE-PUZF-YDMY
+```
+
+```
+85EW-VHE5-VXVZ-Y7KB-W47C
+```
+
+```
+EPYQ-PGBN-QRB4-VT8P-KNND
+```
+
+```
+ZRP7-4TTJ-D6W2-BWZ7-NPRF
+```
