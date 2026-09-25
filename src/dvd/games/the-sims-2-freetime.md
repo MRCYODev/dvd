@@ -1,0 +1,25 @@
+# The Sims 2: FreeTime
+
+**CD Keys:** 5
+
+## Keys
+
+```
+7X8Q-QEDX-BCAY-US73-VGWH
+```
+
+```
+DYLU-YG7X-6KYD-ATV5-R942
+```
+
+```
+6T7X-4EKC-YDQL-4QGD-Q3GC
+```
+
+```
+TMDD-R75P-7FX6-GZHE-VB2C
+```
+
+```
+JL3K-ZWUE-3DVH-DR8M-GB4A
+```

@@ -1,0 +1,25 @@
+# Swat 4
+
+**CD Keys:** 5
+
+## Keys
+
+```
+LEB6-BAF6-DEG7-TEZ6-5344
+```
+
+```
+DUT7-MEB5-FUB3-FUC6-3949
+```
+
+```
+MYX9-PUW6-LUL4-BUG2-2683
+```
+
+```
+TYC4-XUB6-ZYG2-LYR4-8698
+```
+
+```
+GEC9-BEG5-MUX8-BEP8-5869
+```

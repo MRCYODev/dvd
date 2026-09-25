@@ -1,0 +1,25 @@
+# Swat 3
+
+**CD Keys:** 5
+
+## Keys
+
+```
+TAP7-FAB6-CAF2-ZYS6-8923
+```
+
+```
+BAF5-FAB8-JUZ7-SEC7-4376
+```
+
+```
+XEP6-LAB2-NUP9-WAC2-5927
+```
+
+```
+BAC2-BAB2-BAB2-BAB2-2352
+```
+
+```
+LUS7-JAB4-TUG8-WEF6-4883
+```

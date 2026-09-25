@@ -1,0 +1,25 @@
+# The Sims 2: IKEA Home Stuff
+
+**CD Keys:** 5
+
+## Keys
+
+```
+YXF7-YJHJ-ZTVG-JWJA-P5AU
+```
+
+```
+38VD-T278-KLNF-JM39-HVZG
+```
+
+```
+NKPF-PQHU-RADL-FVQH-TCUL
+```
+
+```
+XHD5-NMMT-YBLF-BBYK-UAL8
+```
+
+```
+XC5D-37JK-936N-NFS2-2CUP
+```

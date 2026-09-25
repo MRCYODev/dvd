@@ -1,0 +1,25 @@
+# Tiger Woods PGA Tour 2005
+
+**CD Keys:** 5
+
+## Keys
+
+```
+ZLC4-MALB-DGQP-CHA8-DRLD
+```
+
+```
+6C99-4VLZ-QPZV-5AU3-WRLD
+```
+
+```
+UZ66-PCWS-4ELP-7E4E-7RLD
+```
+
+```
+B9QQ-VGUV-9SBA-UTT5-KRLD
+```
+
+```
+VXVM-2WDW-PVRM-A9NH-WRLD
+```

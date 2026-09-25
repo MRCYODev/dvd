@@ -1,0 +1,25 @@
+# Tiger Woods PGA Tour 2006
+
+**CD Keys:** 5
+
+## Keys
+
+```
+ZEAS-YFQV-3YUY-ERLW-XDXA
+```
+
+```
+RMFX-SS8E-P93P-R3TA-3QFP
+```
+
+```
+35ZZ-YRZA-HJH5-344T-4HZT
+```
+
+```
+ZAAJ-6RW4-5972-CWE5-QBVT
+```
+
+```
+K4P7-MA3Y-WSHR-FA7J-XWYA
+```

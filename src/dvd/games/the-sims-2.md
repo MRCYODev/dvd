@@ -1,0 +1,25 @@
+# The Sims 2
+
+**CD Keys:** 5
+
+## Keys
+
+```
+BKUL-CS68-J6AT-37Y7-KX4F
+```
+
+```
+374U-U5GT-1RZ9-4PDG-T5QZ
+```
+
+```
+DKSS-YCA2-ZO11-SSP7-3AFH
+```
+
+```
+XUT3-6LHW-ZOR1-JH7N-VV7I
+```
+
+```
+DWJ2-Q92Z-R1R1-5F6R-077P
+```

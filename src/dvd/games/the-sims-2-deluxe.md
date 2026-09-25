@@ -1,0 +1,25 @@
+# The Sims 2: Deluxe
+
+**CD Keys:** 5
+
+## Keys
+
+```
+NY8G-EVNG-7MU2-BJ9X-VLB4
+```
+
+```
+XT5V-ZG54-GCDR-4Q4T-LY7X
+```
+
+```
+HLXP-LHWN-VQGY-ETQA-4K3A
+```
+
+```
+5577-W6HG-3QD3-GFHA-GXWA
+```
+
+```
+72HR-N28P-KR35-AJZ3-XFYU
+```

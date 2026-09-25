@@ -1,0 +1,25 @@
+# Tiger Woods PGA Tour 2004
+
+**CD Keys:** 5
+
+## Keys
+
+```
+TKGY-8ST4-191R-TFHL-SM4J
+```
+
+```
+FW5V-EGBM-1191-YZ5L-JPK2
+```
+
+```
+BB2A-2AVS-119R-PP9Z-KUYJ
+```
+
+```
+JTQ8-TX0R-911Z-PZ0X-14A2
+```
+
+```
+E66E-UJUM-R1Z1-HUT0-HVEY
+```

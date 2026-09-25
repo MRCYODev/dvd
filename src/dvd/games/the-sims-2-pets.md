@@ -1,0 +1,25 @@
+# The Sims 2: Pets
+
+**CD Keys:** 5
+
+## Keys
+
+```
+WG6W-GEZP-8FL4-K9DL-L85M
+```
+
+```
+86A2-ULQ5-V3Y9-Y2B5-3RMU
+```
+
+```
+5DXX-8D7H-VLML-B262-ZTT4
+```
+
+```
+6Z88-YC3X-H6QY-QS73-NRGU
+```
+
+```
+WM2S-WTC8-6QDX-W9VV-SQCP
+```

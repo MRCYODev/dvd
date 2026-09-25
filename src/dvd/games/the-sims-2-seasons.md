@@ -1,0 +1,25 @@
+# The Sims 2: Seasons
+
+**CD Keys:** 5
+
+## Keys
+
+```
+2HVM-XJK3-3N86-MTTG-94BX
+```
+
+```
+RPZ9-KDPU-AVM7-CEHJ-4RBH
+```
+
+```
+2H3B-HPR7-HX3V-TCQQ-ZVH9
+```
+
+```
+PGJS-KGTW-L9S8-3D6G-2BWC
+```
+
+```
+WPFF-R692-MPJE-K4GH-JLHV
+```

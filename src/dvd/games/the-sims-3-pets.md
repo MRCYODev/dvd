@@ -1,0 +1,25 @@
+# The Sims 3: Pets
+
+**CD Keys:** 5
+
+## Keys
+
+```
+SQZH-LWVE-7PAK-K6G2-6FLT
+```
+
+```
+F2AA-YPLB-IM46-R5P3-BFLT
+```
+
+```
+IEHZ-33HE-R6IR-A074-7FLT
+```
+
+```
+TUFX-CMP3-959Y-YDUG-3FLT
+```
+
+```
+RYRZ-DCM9-NHMR-FDB5-1FLT
+```
